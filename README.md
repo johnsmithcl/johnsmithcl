@@ -26,5 +26,5 @@ Full-stack development projects
 
 Email: johnsmitcletans007h@gmail.com
 
-LinkedIn:
+LinkedIn:johnsmith-cletans-472910264
 
